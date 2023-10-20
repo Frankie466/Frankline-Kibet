@@ -1,3 +1,3 @@
 # this web was build by frankline kibet
-Skiza
+please fell free to give ur suggestions and complaints to my email....
 contact me on Franklinekubet777@gmail.com for successful website build up.
